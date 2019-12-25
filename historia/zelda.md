@@ -1,7 +1,0 @@
-![Zelda](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2a/Zelda_Logo.svg/245px-Zelda_Logo.svg.png)
-
-The Legend of Zelda (ゼルダの伝説 Zeruda no Densetsu?) es una serie de videojuegos de acción-aventura creada por los diseñadores japoneses Shigeru Miyamoto y Takashi Tezuka,1​ y desarrollada por Nintendo, empresa que también se encarga de su distribución internacional. Su trama por lo general describe las heroicas aventuras del joven guerrero Link, que debe enfrentarse a peligros y resolver acertijos para ayudar a la Princesa Zelda a derrotar a Ganondorf o Ganon (Dependiendo de su forma)y salvar su hogar, el reino de Hyrule.
-
-A partir del lanzamiento del primer juego en 1986, The Legend of Zelda ha logrado una notable popularidad acompañada de críticas favorables en la industria de los videojuegos, traducidas en un cuantioso éxito comercial a nivel internacional2​3​ —hasta febrero de 2017 se calculan más de 90 millones de copias vendidas de sus juegos; para las ventas específicas de cada título de la franquicia, véase la sección Comercial—.
-
-La continuidad cronológica de la trama de los juegos ha sido objeto de debate con el paso del tiempo.4​5​ Algunos de sus seguidores y expertos de la industria cuestionaban la cronología, al no poder hallar vínculos entre algunos títulos.1​ Finalmente, en 2011 apareció publicada la cronología oficial de la serie en el libro Hyrule Historia, en donde se explica que The Legend of Zelda cuenta con tres líneas de tiempo diferentes.
